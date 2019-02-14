@@ -13,7 +13,7 @@ we are working on a 4g phone with small screen and tiny but powerful os
 
 support us:
 with 12$ or more, will receive the phone
-Bitcoin-41325401c44d34ef
+Bitcoin:3ExEjeBLLfncuzzJ9sQTX9QLx14XqC5zNd
 
 TINY TOTAL TRANSPARENT OS
 =========================
